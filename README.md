@@ -1,1 +1,0 @@
-# Khurshid_jurnalism
